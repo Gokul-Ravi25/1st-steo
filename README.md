@@ -1,1 +1,1 @@
-# 1st-steo
+# 1st-step
